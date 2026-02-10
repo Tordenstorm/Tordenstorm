@@ -2,6 +2,9 @@ Information about me :3
 
 I'm a socially anxious person and will never interact first most of the time. I don't mind people interacting with me, but I'm not very good at holding up conversations with people. I usually hang around my friends !!
 
+
+- DNC my ponies pls 
+
 Interests
 
  - VAT7K
