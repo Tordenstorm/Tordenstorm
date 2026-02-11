@@ -1,4 +1,4 @@
-Information about me :3 
+Info
 
 I'm a socially anxious person and will never interact first most of the time. I don't mind people interacting with me, but I'm not very good at holding up conversations so I'd often stay silent. I usually hang around my friends !!
 
