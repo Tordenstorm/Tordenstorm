@@ -5,7 +5,7 @@ I'm a socially anxious person and will never interact first most of the time. I 
 
 - DNC my ponies pls
 
-  https://media.tenor.com/fHxOrORUkq4AAAAM/eddsworld-tord.gif
+ 
 
 Interests
 
