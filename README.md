@@ -38,3 +38,6 @@ Interests
  - Phasmophobia
  - Pony Town
  - Creatures of Sonaria
+
+
+DNI - Proshippers and anything under that category, Racists, Homophobes etc, Generative AI users, Under 14, Over 25 + and theres probably more I dont remember
