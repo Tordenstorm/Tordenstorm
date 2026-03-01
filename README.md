@@ -39,6 +39,7 @@ Interests
  - Sky
  - Phasmophobia
  - Pony Town
+ - Splatoon 3
  - Creatures of Sonaria
  
 
