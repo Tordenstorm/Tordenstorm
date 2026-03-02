@@ -1,6 +1,6 @@
 Info
 
-I'm a socially anxious person and will never interact first most of the time. I don't mind people interacting with me, but I'm not very good at holding up conversations so I'd often stay silent. I usually hang around my friends !!
+I'm a socially anxious person and will never interact first most of the time. I don't mind people interacting with me, but I'm not very good at holding up conversations so I'd often stay silent. I sometimes need tonetags :1 I usually hang around my friends !!
 
 ![eddsworld-tord](https://github.com/user-attachments/assets/bf1752e0-5f6d-46ca-9c94-46216696c3dc)
 
