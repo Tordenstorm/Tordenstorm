@@ -43,7 +43,7 @@ Interests
  - Creatures of Sonaria
  
 
-DNI - Proshippers and anything under that category, Racists, Homophobes etc, Generative AI users, Under 14, Over 25 + and theres probably more I dont remember
+DNI - Proshippers and anything under that category, Racists, Homophobes etc, Generative AI users and theres probably more I dont remember
 
 <img width="1951" height="1665" alt="Screenshot 2026-02-02 232043" src="https://github.com/user-attachments/assets/3f636391-d630-4213-b0d3-054445670880" />
 
