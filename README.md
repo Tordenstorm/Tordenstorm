@@ -25,7 +25,7 @@ Interests
  - The Owl House
  - Wander Over Yonder
  - Jumpcut!
- - 
+   
  (all i remember for now TwT)
 
  Games
@@ -41,6 +41,7 @@ Interests
  - Pony Town
  - Splatoon 3
  - Creatures of Sonaria
+ - Marvel Rivals
  
 
 DNI - Proshippers and anything under that category, Racists, Homophobes etc, Generative AI users and theres probably more I dont remember
